@@ -16,7 +16,7 @@
 - Creating clean, professional GitHub repositories
 
 ### 📫 Reach Me At
-- LinkedIn: that-sam
+- LinkedIn: https://www.linkedin.com/in/that-sam
 
 ---
 
