@@ -16,7 +16,7 @@
 - Creating clean, professional GitHub repositories
 
 ### 📫 Reach Me At
-- LinkedIn: https://www.linkedin.com/in/that-sam
+- LinkedIn: https://www.linkedin.com/in/samiksha-thatipamula-221989374
 
 ---
 
